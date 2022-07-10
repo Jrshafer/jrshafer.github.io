@@ -1,1 +1,0 @@
-# jrshafer.github.io
